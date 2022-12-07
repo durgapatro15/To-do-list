@@ -1,3 +1,3 @@
 # main.github.io
-#2141016231
-#Durga_patro
+Regid.No.-2141016231
+Telegram user name-Durga_patro
